@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @AyimaKhan
 - 👀 I’m interested in Graphic designing, Video editing, Data entry, Content and Article writing
-- 🌱 I’m currently doing Software Engineeing
+- 🌱 I’m currently doing BS in Software Engineeing
 - 💞️ I’m looking for jobs around my fields of interests.
 - 📫 How to reach me? On instagram @Gyubear.313 and upwork
 - 😄 Pronouns: She/Her
