@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AyimaKhan
+- 👋 Hi, I’m Ayima Shahzadi Tariq
 - 👀 I’m interested in Graphic designing, Video editing, Data entry, Content and Article writing
 - 🌱 I’m currently doing BS in Software Engineeing
 - 💞️ I’m looking for jobs around my fields of interests.
